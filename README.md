@@ -16,6 +16,8 @@ __Comment lancer le script ?__
 
 Preview: https://streamable.com/of7mmg
 
+Pmenu created by PichoTM
+
 
 
 
