@@ -14,7 +14,7 @@ __Comment lancer le script ?__
 
 *ensure W.Shops*
 
-
+Preview: https://streamable.com/of7mmg
 
 
 
